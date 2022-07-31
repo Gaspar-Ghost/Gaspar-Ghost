@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do Gaspar-Ghost 😁 
+## Bem-vindo(a) ao perfil do Gaspar-Ghost 🥱🤩🤨
 
 <div>
   <a href="https://github.com/Gaspar-Ghost">
